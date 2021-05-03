@@ -1,1 +1,1 @@
-foot ot not foot?
+foot or not foot?
